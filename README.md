@@ -1,5 +1,3 @@
-# RazzleDazzle0627.github.io
-
 ## <b>Perry Higginbotham's Github Page!</b>
 
 <br>
